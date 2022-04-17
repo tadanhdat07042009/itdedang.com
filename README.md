@@ -1,1 +1,1 @@
-# itdedang.com
+# itdedang
